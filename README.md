@@ -6,7 +6,7 @@ $\color{#D164A4}{\text{hello.}}$
 $\color{#FA8B50}{\text{i'm autistic creature and i dont want new friends if u from pony town, but if u really interested about me u can check my strawpage, and if u REALLY interested u can check my reposts in tiktok, especially old (it's not that much + i gonna delete some).}}$
 
 <p align="center"> 
-$\color{#FA8B50}{\text{i like calogado (utau), yttd, minecraft, osu! (main taiko, but play catch, std and mania too)}}$
+
 
 <p align="left">
 <img width="100" height="auto" alt="image" src="https://external-media.spacehey.net/media/shb9KkBi6PdgUuVVE2ZwA9cBVEcdopaK8uB7qyCoaJSM=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/c350de11-8c52-4be4-bc28-608bfd99bd53/d966ifx-a0c1b8ec-25b3-41b6-94c3-922e53a50bff.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2MzNTBkZTExLThjNTItNGJlNC1iYzI4LTYwOGJmZDk5YmQ1M1wvZDk2NmlmeC1hMGMxYjhlYy0yNWIzLTQxYjYtOTRjMy05MjJlNTNhNTBiZmYucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.ACj89CpfkyTeOVXSzseh8gvCPZkE22d0TZMPIUPZO68" />
@@ -22,4 +22,3 @@ $\color{#FA8B50}{\text{i listen: plastic tree, creep-p, maretu, tokyopill, sewer
 <img width="100" height="auto" alt="image" src="https://external-media.spacehey.net/media/sywb3HbbxAUTnye4ofG8kurQo2g2eE8InmSaZM9fhzWg=/https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/b46bbf2a-af00-412a-a41e-043106934ea7/dbvqpzp-27b0dfce-678d-44f3-9daa-3cd3a38dbc18.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcL2I0NmJiZjJhLWFmMDAtNDEyYS1hNDFlLTA0MzEwNjkzNGVhN1wvZGJ2cXB6cC0yN2IwZGZjZS02NzhkLTQ0ZjMtOWRhYS0zY2QzYTM4ZGJjMTgucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.bKQEPukLxs4ZrHCiQ7t5HfkqORzVxu8eBbXQjk96H3I" />
 
 <p align="center"> 
-/
